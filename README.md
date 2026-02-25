@@ -22,6 +22,7 @@
 $$ \color{darkgray} \Huge \text{SEVEN} $$
 $$ \color{darkgray} \text{HE/IT | C+H ALWAYS} $$
 $$ \color{darkgray} \text{TAKEN | NPD | -16 DNI} $$
+$$ \color{darkgray} \small\text{12/21 <3} $$
 $$ \color{darkgray} \Tiny \text{no dni otherwise/ i block freely! SQUEAK!!} $$
 
 </p>
