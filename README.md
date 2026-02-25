@@ -20,14 +20,23 @@
 </div>
  
 $$ \color{darkgray} \Huge \text{SEVEN} $$
+
+</p>
+<p align="center">
+<a href="https://example.com](https://www.youtube.com/watch?v=RCXb6CJm6IM" target="_blank">BABY, EVERY DAY I SEE U AAND ME GETTING HIGH WITH EACH OTHER!!</a>
+</p>
+
 $$ \color{darkgray} \text{HE/IT | C+H ALWAYS} $$
 $$ \color{darkgray} \text{TAKEN | NPD | -16 DNI} $$
 $$ \color{darkgray} \small\text{12/21 <3} $$
-$$ \color{darkgray} \Tiny \text{no dni otherwise/ i block freely! SQUEAK!!} $$
+$$ \color{darkgray} \Tiny \text{NO DNI OTHERWISE/I BLOCK FREELY! SQUEAK!!} $$
 
 
 $$ \color{darkgray} \Tiny \text{OTHERKIN+FICTKIN} $$
 $$ \color{darkgray} \Tiny \text{INFECTED, SUBSPACE, COYOTE, UNICORN, PERNIREX } $$
+
+$$ \color{darkgray} \Tiny \text{YUMES} $$
+$$ \color{darkgray} \Tiny \text{PEST /R, HABIT /R, 2X2 /FAM} $$
 
 </p>
 
