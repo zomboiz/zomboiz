@@ -36,7 +36,7 @@ $$ \color{darkgray} \Tiny \text{OTHERKIN+FICTKIN} $$
 $$ \color{darkgray} \Tiny \text{INFECTED, SUBSPACE, COYOTE, UNICORN, ZOMBIE } $$
 
 $$ \color{darkgray} \Tiny \text{YUMES} $$
-$$ \color{darkgray} \Tiny \text{PEST /R, HABIT /R, 2X2 /FAM} $$
+$$ \color{darkgray} \Tiny \text{PEST /R, 2X2 /P/FAM} $$
 
 </p>
 
