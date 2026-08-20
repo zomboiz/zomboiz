@@ -20,6 +20,7 @@
 </div>
  
 $$ \color{darkgray} \Huge \text{SEVEN} $$
+$$ \color{darkgray} \text{if u see im drunk and are concerned that im 18, fear not. im canadian.} $$
 
 </p>
 <p align="center">
