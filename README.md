@@ -22,7 +22,7 @@
 $$ \color{darkgray} \Huge \text{SEVEN} $$
 
 
-$$ \color{darkgray} \text{HE/IT | C+H ALWAYS} $$
+$$ \color{darkgray} \text{C+H ALWAYS ENCOURAGED} $$
 $$ \color{darkgray} \text{UNDER 15 DNF} $$
 $$ \color{darkgray} \Tiny \text{NO DNI OTHERWISE/I BLOCK FREELY! SQUEAK!!} $$
 
