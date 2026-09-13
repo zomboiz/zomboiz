@@ -28,8 +28,7 @@ $$ \color{darkgray} \text{if u see im drunk and are concerned that im 18, fear n
 </p>
 
 $$ \color{darkgray} \text{HE/IT | C+H ALWAYS} $$
-$$ \color{darkgray} \text{TAKEN | NPD | -15 DNI} $$
-$$ \color{darkgray} \small\text{12/21 <3} $$
+$$ \color{darkgray} \text{ NPD | -15 DNI} $$
 $$ \color{darkgray} \Tiny \text{NO DNI OTHERWISE/I BLOCK FREELY! SQUEAK!!} $$
 
 
