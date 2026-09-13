@@ -20,11 +20,10 @@
 </div>
  
 $$ \color{darkgray} \Huge \text{SEVEN} $$
-$$ \color{darkgray} \text{if u see im drunk and are concerned that im 18, fear not. im canadian.} $$
 
 
 $$ \color{darkgray} \text{HE/IT | C+H ALWAYS} $$
-$$ \color{darkgray} \text{ NPD | -15 DNI} $$
+$$ \color{darkgray} \text{UNDER 15 DNF} $$
 $$ \color{darkgray} \Tiny \text{NO DNI OTHERWISE/I BLOCK FREELY! SQUEAK!!} $$
 
 
