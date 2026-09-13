@@ -22,10 +22,6 @@
 $$ \color{darkgray} \Huge \text{SEVEN} $$
 $$ \color{darkgray} \text{if u see im drunk and are concerned that im 18, fear not. im canadian.} $$
 
-</p>
-<p align="center">
-<a href="https://example.com](https://www.youtube.com/watch?v=RCXb6CJm6IM" target="_blank">BABY, EVERY DAY I SEE U AAND ME GETTING HIGH WITH EACH OTHER!!</a>
-</p>
 
 $$ \color{darkgray} \text{HE/IT | C+H ALWAYS} $$
 $$ \color{darkgray} \text{ NPD | -15 DNI} $$
