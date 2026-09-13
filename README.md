@@ -27,11 +27,8 @@ $$ \color{darkgray} \text{UNDER 15 DNF} $$
 $$ \color{darkgray} \Tiny \text{NO DNI OTHERWISE/I BLOCK FREELY! SQUEAK!!} $$
 
 
-$$ \color{darkgray} \Tiny \text{OTHERKIN+FICTKIN} $$
-$$ \color{darkgray} \Tiny \text{INFECTED, SUBSPACE, COYOTE, UNICORN, ZOMBIE } $$
+$$ \color{darkgray} \text{ZOMBIEKIN, ROBOKIN.. AND A COYOTE!} $$
 
-$$ \color{darkgray} \Tiny \text{YUMES} $$
-$$ \color{darkgray} \Tiny \text{PEST /R, 2X2 /P/FAM} $$
 
 </p>
 
